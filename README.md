@@ -14,3 +14,14 @@ df
 asdfidjfiasdj f
 
 I think this time this keyboard works fine. GREAT~~~~!!!!
+
+asdfaksdjflasdkjflaskdjfasdfasdfj;lkjlkjlkj;kljlkjjjkkkklll;   sdflasd kfaksd asl k
+LKJLKJHGHFDRWERTYUIOPOIUREWXMNX<MNCBCNBALSDKFJALSDKJFA
+ASDL;FKJAS;DLFKJ
+QASLDKFJA;JDF192837419246716349817263941723649764319 ASLDKFJA;S
+tesT
+TEST
+good
+GOOD 
+// END OF TEST _ Date: 021616 @1246
+
